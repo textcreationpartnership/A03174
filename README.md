@@ -35,11 +35,218 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A fourth hundred of epygrams, newly inuented and made by Iohn HeywoodHeywood, John, 1497?-1580?1560A
+
+1. To the reader.
+
+1. The table.
+
 #####Body#####
-A fourth hundred of epygrams, newly inuented and made by Iohn HeywoodHeywood, John, 1497?-1580?1560A
+
+1. Of weenynge and wottinge. 1.
+
+1. Of a man of ſawe and his clientes. 2.
+
+1. An aduiſe againſt mockyng. 3.
+
+1. Of itchynge and ſmartynge. 4.
+
+1. Of a ſharpe tunge. 5.
+
+1. Of a horſe. 6.
+
+1. Of a butler and a horſe. 7.
+
+1. Of braſſe. 8.
+
+1. Of a louces dwellinge place. 9.
+
+1. Of a ſtraunge glaſſe. 10.
+
+1. Of driuyng and drawing. 11.
+
+1. Of longe ſutes. 12.
+
+1. Of lightneſſe. 13.
+
+1. Of a diſagreement. 14.
+
+1. Of cheapnyng of Conies. 15.
+
+1. Of a wyfe hauynge childe. 16.
+
+1. Of a bachiler and a mayde. 17.
+
+1. Of ſhorte payment. 18.
+
+1. whence certaine thinges came firſt. 19.
+
+1. Of furred and lyned gownes. 20.
+
+1. Of a wyne drawer. 21.
+
+1. Shorte checkes betweene a man and his wife. 22.
+
+1. Of a woman deckte in two coloures, 23.
+
+1. Of vnſweete breath. 24.
+
+1. Of clyppynge and clenſynge. 25.
+
+1. Of a man and his wyues departynge. 26.
+
+1. An accounte of a mans children. 27.
+
+1. Of a woman of Huntington. 28.
+
+1. Of a laundres. 29.
+
+1. Of a cutter of purſlane. 30.
+
+1. Of one ſtandyng of his owne conceite. 31.
+
+1. Of one that harde without eares. 32.
+
+1. Of an archers rouyng. 33.
+
+1. Of perill to one by the number of three. 34.
+
+1. Of Gloria patri. 35.
+
+1. Of a dyar. 36.
+
+1. Of a Jugge. 37.
+
+1. Of the three cuppes. 38.
+
+1. Of braſſe and Jron. 39.
+
+1. Of Jacke and John. 40.
+
+1. Of wreſtlinge. 41.
+
+1. Of pryde. 42.
+
+1. Of one hanged. 43.
+
+1. Of a dettar. 44.
+
+1. Of louinge of a gooſe. 45.
+
+1. Of harpe ſtringes. 46.
+
+1. Of Forrune. 47.
+
+1. Of choyſe. 48.
+
+1. Of a falſe bragge. 49.
+
+1. Of liyng and true ſayinge. 50.
+
+1. Of a dawe pate. 51.
+
+1. Of water and wyne. 52.
+
+1. Betwene dogges and a deere. 53.
+
+1. Of twelue and one. 54.
+
+1. Of verdingales. 55.
+
+1. Preceptes of a man to his wyfe. 56.
+
+1. Of a man expert. 57.
+
+1. Of deliuerance from yll. 58.
+
+1. Of cuttyng of the herbe tyme. 59.
+
+1. Of one fearynge the ſwette. 60.
+
+1. Of one thinkinge on an other. 61.
+
+1. Of one beynge at a poynte. 62.
+
+1. Of Teſtons. 93.
+
+1. Of redde Teſtons. 64.
+
+1. Of ſtampyng. 65.
+
+1. Of John longe the carier. 66.
+
+1. Of turninge. 67.
+
+1. Of maſter Carter. 68.
+
+1. Of goynge farre. 69.
+
+1. How money is made lame. 70.
+
+1. Of an olde wooer. 71.
+
+1. Of a yonge wooer. 72.
+
+1. Of weakneſſe and ſtrength. 73.
+
+1. Warninge of pryde. 74.
+
+1. Of pacience. 75.
+
+1. Of pleaſynge. 76.
+
+1. Of a hande goonne and a hande. 77.
+
+1. Of braſſe and ſyluer. 78.
+
+1. Of difference betwene wyſe men and fooles. 79.
+
+1. Of a pithie wytte. 80.
+
+1. Of choiſe to be a wiſe man or a foole. 81.
+
+1. Of a knightes carterly coller. 82.
+
+1. of males and male horſes. 83.
+
+1. A man diſcommended. 84.
+
+1. Of runnynge. 85.
+
+1. Of pollinge. 86.
+
+1. Of plate ſent foorth. 87.
+
+1. Of a man of lowe and his wife. 88.
+
+1. Of pennes and pence. 89.
+
+1. Of a womans thinne tung. 90.
+
+1. Of drinkyng to a man. 91.
+
+1. Of runninge at Tylte. 92.
+
+1. Of expence. 93.
+
+1. Of fraying of babes. 94.
+
+1. of reedes and okes. 95.
+
+1. Of biyng a morter. 96.
+
+1. Of a ſtepmother. 97.
+
+1. Of a lyar. 98.
+
+1. Of tunges and pynſons. 99.
+
+1. Of Heywood. 100.
+
 #####Back#####
-A fourth hundred of epygrams, newly inuented and made by Iohn HeywoodHeywood, John, 1497?-1580?1560A
+IMPRINTED AT
+London in Fleeteſtrete in the
+houſe late Thomas
+Berthelettes.Cum priuilegio ad imprimen
 **Types of content**
 
   * There are 569 **verse** lines!
